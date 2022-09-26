@@ -1,2 +1,3 @@
 # TRAINING-1
 FIRST PRATICE
+on God
